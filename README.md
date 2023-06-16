@@ -8,4 +8,4 @@ Check Out our site,
 [indian Creator](http://indiancreator.in/),
 
 Check Out our Instagram,
-[indian Creator](http://indiancreator.in/),
+[indian Creator](https://instagram.com/indiancreator.in/),
